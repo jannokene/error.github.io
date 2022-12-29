@@ -1,2 +1,0 @@
-# jannokene.github.io
-Jannole
